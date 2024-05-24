@@ -9,3 +9,6 @@ Meu nome é Thauany
 
 
 00001111442022sp@al.educacao.sp.gov.br
+
+
+![](https://media1.tenor.com/m/rv20dFusX-QAAAAC/love.gif) 
